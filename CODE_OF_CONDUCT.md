@@ -1,6 +1,24 @@
 'Esto es un codigo de conducta 2' 
 
-Agregar comentarios y en ellos explicar por funciones.
-Nombres de variables explicitos y si es posible cortos.
-
-Tener una forma de codigo más explicita y explicativa
+Ayuda estoy sufriendo esto no es una broma, send Help
+Ayuda estoy sufriendo esto no es una broma, send Help
+Ayuda estoy sufriendo esto no es una broma, send Help
+Ayuda estoy sufriendo esto no es una broma, send Help
+Ayuda estoy sufriendo esto no es una broma, send Help
+Ayuda estoy sufriendo esto no es una broma, send Help
+Ayuda estoy sufriendo esto no es una broma, send Help
+Ayuda estoy sufriendo esto no es una broma, send Help
+Ayuda estoy sufriendo esto no es una broma, send Help
+Ayuda estoy sufriendo esto no es una broma, send Help
+Ayuda estoy sufriendo esto no es una broma, send Help
+Ayuda estoy sufriendo esto no es una broma, send Help
+Ayuda estoy sufriendo esto no es una broma, send Help
+Ayuda estoy sufriendo esto no es una broma, send Help
+Ayuda estoy sufriendo esto no es una broma, send Help
+Ayuda estoy sufriendo esto no es una broma, send Help
+Ayuda estoy sufriendo esto no es una broma, send Help
+Ayuda estoy sufriendo esto no es una broma, send Help
+Ayuda estoy sufriendo esto no es una broma, send Help
+Ayuda estoy sufriendo esto no es una broma, send Help
+Ayuda estoy sufriendo esto no es una broma, send Help
+Ayuda estoy sufriendo esto no es una broma, send Help
